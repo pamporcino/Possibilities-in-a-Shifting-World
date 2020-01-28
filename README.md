@@ -1,1 +1,1 @@
-# Possibilities-in-a-Shifting-World
+# Possibilities in a Shifting World
